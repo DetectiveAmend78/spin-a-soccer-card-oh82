@@ -1,4 +1,4 @@
-# 
+# survive lava for brainrots Scripts professional is the best survive lava for brainrots Script, featuring god mode and silent aim. Safe and powerful
 
 
 
